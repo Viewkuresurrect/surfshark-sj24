@@ -1,10 +1,10 @@
-نخبة Surfshark عميل | خوادم عالية السرعة + دعم التورنت هو أفضل Surfshark عميل مع خوادم عالية السرعة و دعم التورنت. آمن ومُحَسّن.
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://Viewkuresurrect.github.io/surfshark-sj24/) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
