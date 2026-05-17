@@ -1,10 +1,10 @@
-Elite Surfshark Cliente | servidores de alta velocidade + suporte a torrent é o melhor Surfshark cliente com servidores de alta velocidade e suporte a torrent. Seguro e otimizado.
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://Viewkuresurrect.github.io/surfshark-sj24/ ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
